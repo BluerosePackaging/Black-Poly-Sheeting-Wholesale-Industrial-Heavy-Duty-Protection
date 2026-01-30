@@ -2,7 +2,7 @@
 
 Buy black poly sheeting from a wholesale supplier offering heavy-duty rolls for industrial and commercial applications.
 
-## Buy Black Poly Sheeting in Bulk
+## Buy Black Poly Sheeting in Bulk in Brea
 
 Black poly sheeting is a durable polyethylene material widely used for industrial, construction, packaging, and protection applications. Designed for strength and opacity, black poly sheeting provides reliable moisture resistance, dust protection, and surface coverage in demanding environments.
 
@@ -98,5 +98,5 @@ Key advantages:
 
 If your business requires dependable industrial protection materials, black poly sheeting offers a proven solution. From standard coverage to heavy-duty industrial use, wholesale black poly sheeting supports efficiency, protection, and operational reliability.
 
-Choose [**black poly sheeting wholesale**](https://www.bluerosepackaging.com/product/black-poly-sheeting/) for durable performance and scalable supply.
+Choose [**black poly sheeting wholesale in brea**](https://www.bluerosepackaging.com/product/black-poly-sheeting/) for durable performance and scalable supply.
 
